@@ -1,2 +1,2 @@
 # zara
-this is my pc
+this is my ps 
